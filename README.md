@@ -2,4 +2,4 @@
 - Angel David Muñoz Torres - 1027941882 - Ing. Industrial
 - Diego Alejandro Rendon Suaza - 1007347028 - Ing. Sistemas
 
-- Video:
+- Video:https://youtu.be/AJ2Xqm1viEc
